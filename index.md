@@ -1,3 +1,3 @@
-# !Jakob Is Amazing!
-## ^^ In Case You Forgot ^^
+# Jakob Is Amazing
+## In Case You Forgot
 
